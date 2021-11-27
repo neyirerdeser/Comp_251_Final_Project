@@ -1,1 +1,1 @@
-received a grade ofv71.6%
+received a grade of 71.6%
